@@ -24,7 +24,7 @@ Young Rembrandts San Francisco, CA — 2023 — 2024
 
 The School of the Art Institute of Chicago, IL — 2018 — 2022
 
-Chicago Public Media Chicago, IL — July 2022
+ <a href="(https://www.wbez.org/staff/3609/amirah-bachik)">Chicago Public Media</a> Chicago, IL — July 2022
 
 HBR Consulting Chicago, IL — Sept 2021 — May 2022
 
